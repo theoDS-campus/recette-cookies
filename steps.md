@@ -7,5 +7,4 @@
 - Enfourner pour 10 minutes de cuisson.
 
 
-SORTIR LE PLAT DU FOUR ATTENTION
-
+jdsqjjdsqqdsjdsqjdsqdskdsqdsqdskj
