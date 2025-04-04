@@ -1,4 +1,4 @@
-# list ingrédients - 85 g de beurre mou
+# list ingrédients
 - 1œuf
 - 85g de sucre
 - 1 sachet de sucre vanillé
